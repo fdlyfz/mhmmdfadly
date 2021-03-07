@@ -4,7 +4,7 @@ My name is Mochamad Fadly Fauzi Jaelani. You can call me fadly I'm 17 y.o from G
 
 ### My Personal Setuf 🧑🏽
 
-📱 Realme 5i, Realme 6
+📱 Xiaomi redmi note 9, Realme 6
 
 🎮 PUBGM, Mobile Legends
 
